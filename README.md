@@ -1,4 +1,4 @@
-Julian Sayanca
+Inca Julian Marcelo Sayanca Navarro
 Thiago Gazcon
 Matias Real
 Dylan Sayegh
